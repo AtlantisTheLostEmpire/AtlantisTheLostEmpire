@@ -1,13 +1,11 @@
 Ahoy!
 
-Can't find that meme, picture, or cool video you once saw?
+Can't find that picture, meme, or cool video you once saw?
 
-Don't know who created it?
+Don't know who created it or where it was first posted?
 
-Don't know where it's originally from?
+Wish you had a better version of it with more pixels and less crap plastered all over it?
 
-Wish you had a better quality version of it with more pixels and less crap plastered all over it from social media apps?
-
-I'm your guy.
+Then I'm your guy! No seriously, I can find pretty much anything online.
 
 @AtlantisTheLostEmpire
