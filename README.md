@@ -6,6 +6,6 @@ Don't know who created it or where it was first posted?
 
 Wish you had a better version of it with more pixels and less crap plastered all over it?
 
-Then I'm your guy! No seriously, I can find pretty much anything online.
+Then I'm your guy! No seriously, I can pretty much find ANYTHING online. Just ask!
 
 @AtlantisTheLostEmpire
